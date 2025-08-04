@@ -13,11 +13,11 @@ We specialize in selling stylish home decor, handcrafted wooden floor lamps, and
 - Fast delivery within and outside the city
 
 📦 **Ordering is simple and fast!**  
-📞 **Contact:** [Add your WhatsApp number here]  
+📞 **Contact:** [0655824035]  
 📍 **Location:** Morocco
 
 ---
 
 ## Follow us on Social Media:
-- **Instagram:** [Your Instagram link]  
-- **TikTok:** [Your TikTok link]  
+- **Instagram:** [imadeco]  
+- **TikTok:** [imadeco]  
